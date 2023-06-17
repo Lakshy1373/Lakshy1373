@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning Java Script
 - 💞️ I’m looking to collaborate on Java Script
 - 📫 How to reach me 📨:- Lakshychauhan1373@gmail.com
--                    📱:-8447006683
+-                    📱:- 8447006683
